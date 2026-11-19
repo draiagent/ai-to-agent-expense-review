@@ -23,4 +23,4 @@
 
 後續可用同一份案例比較不同工具的辨識與對帳結果。
 
-AI Coach 益力康陳董 x CGM Coach 血糖教練 | 2026 AI to Agent
+AI Coach 益力康陳董 x CGM Coach 血糖教練 | 2026 AI to Agent | 2027 AI to AGI Agent
